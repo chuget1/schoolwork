@@ -5,3 +5,7 @@
 # schoolwork
 
 ##### [schoolwork](https://themememanhimself.github.io/schoolwork/main)
+
+https://photos.app.goo.gl/AWS8vJb8YyEEpTTz5
+
+https://photos.app.goo.gl/jEmi1uALjpuJsaQB9
